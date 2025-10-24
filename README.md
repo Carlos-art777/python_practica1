@@ -1,0 +1,12 @@
+#-------Grupo 2---------
+
+Carlos Barlo --- origami1535@gmail.com
+
+Emanuel Thiago Vargas --- emanuel.thiago.vargas@gmail.com
+
+Facundo Blas --- facundoblas2020@gmail.com
+
+Kevin Salmeron --- salmeronk150@gmail.com
+
+Melody Lanza --- melodyalexandralanza@gmail.com
+
